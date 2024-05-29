@@ -15,3 +15,10 @@ En compagnie de son fidèle équipage, Lyra se lance dans une mission désespér
 ### Ajout de Cédric
 
 Lyra et son équipage naviguent à travers des labyrinthes virtuels, chaque étape les rapprochant de la vérité derrière l'Étoile Perdue. Lors d'une confrontation finale, Lyra découvre que l'artefact réside non pas dans un objet physique, mais dans la force collective des espoirs et des rêves de l'humanité. En unissant ces forces, ils libèrent une énergie qui repousse les créatures mécaniques et offre à Necroxis une chance de renaître.
+
+### La Découverte de la Vérité - Gemi
+
+
+Alors que Lyra et son équipage parcourent les derniers recoins du Réseau de la Lumière, confrontant les épreuves les plus difficiles, ils atteignent enfin le cœur de cette dimension virtuelle. Là, au milieu d'un océan de données et de pixels tourbillonnants, ils découvrent la véritable nature de l'Étoile Perdue.
+
+Ce n'est pas un objet physique, ni une relique ancienne, mais plutôt une manifestation de l'espoir et de la détermination de tous ceux qui aspirent à un avenir meilleur. L'Étoile Perdue est un symbole, une force qui unit les âmes et guide les cœurs vers la lumière, même dans les ténèbres les plus profondes.
